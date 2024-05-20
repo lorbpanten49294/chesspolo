@@ -1,1 +1,1 @@
-Rugby jerseys often feature distinctive designs and colors representing national teams or club identities, with players wearing their team's colors with pride during matches.
+The Six Nations Championship is an annual rugby union tournament featuring the national teams of England, France, Ireland, Italy, Scotland, and Wales, competing for the championship title.
