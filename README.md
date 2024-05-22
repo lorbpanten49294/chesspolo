@@ -1,1 +1,1 @@
-The haka is a traditional Maori war dance performed by the New Zealand All Blacks before their rugby matches, symbolizing strength, unity, and challenge to their opponents.
+Scrummaging is a key aspect of rugby union, where players from each team bind together and contest for possession of the ball, requiring strength, technique, and coordination.
