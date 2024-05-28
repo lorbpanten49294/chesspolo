@@ -1,1 +1,1 @@
-The Six Nations Championship is an annual rugby union tournament featuring the national teams of England, France, Ireland, Italy, Scotland, and Wales, competing for the championship title.
+The FINA Water Polo World Championships is the premier international tournament for water polo, featuring national teams from around the world competing for the championship title.
