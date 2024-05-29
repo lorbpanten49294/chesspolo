@@ -1,1 +1,1 @@
-The FINA Water Polo World Championships is the premier international tournament for water polo, featuring national teams from around the world competing for the championship title.
+Players who commit fouls may receive penalties, such as exclusion from the game for a set period (typically 20 seconds) or a penalty shot awarded to the opposing team.
