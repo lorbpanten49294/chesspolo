@@ -1,1 +1,1 @@
-Players who commit fouls may receive penalties, such as exclusion from the game for a set period (typically 20 seconds) or a penalty shot awarded to the opposing team.
+The six types of chess pieces are the king, queen, rook, bishop, knight, and pawn, each with its own unique movement capabilities.
