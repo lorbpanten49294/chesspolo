@@ -1,1 +1,1 @@
-The six types of chess pieces are the king, queen, rook, bishop, knight, and pawn, each with its own unique movement capabilities.
+The youngest grandmaster in history is Sergey Karjakin, who achieved the title at the age of 12 years and 7 months in 2002.
