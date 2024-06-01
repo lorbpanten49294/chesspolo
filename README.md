@@ -1,1 +1,1 @@
-The youngest grandmaster in history is Sergey Karjakin, who achieved the title at the age of 12 years and 7 months in 2002.
+The standard chess set consists of 32 pieces, including 16 white and 16 black pieces, each with specific movements and values on the board.
