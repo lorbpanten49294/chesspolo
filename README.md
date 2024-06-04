@@ -1,1 +1,1 @@
-Communication among players is essential in water polo, with teams using hand signals, verbal cues, and visual cues to coordinate movements and execute plays effectively.
+Coaches play a crucial role in developing game plans, organizing set plays, and making tactical adjustments during matches to exploit opponents' weaknesses.
