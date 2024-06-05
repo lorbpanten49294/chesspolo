@@ -1,1 +1,1 @@
-Coaches play a crucial role in developing game plans, organizing set plays, and making tactical adjustments during matches to exploit opponents' weaknesses.
+The penalty shot, taken from a designated spot in front of the goal, gives the attacking player a one-on-one opportunity to score against the goalkeeper.
