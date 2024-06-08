@@ -1,1 +1,1 @@
-The word "checkmate" comes from the Persian phrase "shāh māt," which means "the king is helpless" or "the king is dead."
+Magnus Carlsen of Norway is the current world chess champion, holding the title since 2013 and widely regarded as one of the greatest chess players of all time.
