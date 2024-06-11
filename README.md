@@ -1,1 +1,1 @@
-Coaches play a crucial role in developing game plans, organizing set plays, and making tactical adjustments during matches to exploit opponents' weaknesses.
+The haka is a traditional Maori war dance performed by the New Zealand All Blacks before their rugby matches, symbolizing strength, unity, and challenge to their opponents.
