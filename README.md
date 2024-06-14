@@ -1,1 +1,1 @@
-Rugby sevens is a fast-paced and exciting variant of rugby union, featuring seven players per team and shorter match durations, making it a popular format for international tournaments and the Olympic Games.
+The Calcutta Cup is a historic rugby union trophy contested annually between England and Scotland as part of the Six Nations Championship, with origins dating back to 1879.
