@@ -1,1 +1,1 @@
-The Calcutta Cup is a historic rugby union trophy contested annually between England and Scotland as part of the Six Nations Championship, with origins dating back to 1879.
+The NCAA Water Polo Championships is a major collegiate tournament in the United States, showcasing top men's and women's teams from universities across the country.
