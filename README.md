@@ -1,1 +1,1 @@
-The United States women's water polo team has also been highly successful, winning multiple Olympic gold medals since the sport was introduced for women in 2000.
+Chess openings are sequences of moves used to establish control of the board and develop pieces in the early stages of the game.
