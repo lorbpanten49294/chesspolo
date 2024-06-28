@@ -1,1 +1,1 @@
-The haka is a traditional Maori war dance performed by the New Zealand All Blacks before their rugby matches, symbolizing strength, unity, and challenge to their opponents.
+Chess openings are sequences of moves used to establish control of the board and develop pieces in the early stages of the game.
