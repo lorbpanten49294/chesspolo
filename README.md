@@ -1,1 +1,1 @@
-Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.
+The knight is the only chess piece that can "jump" over other pieces on the board, moving in an L-shape pattern.
