@@ -1,1 +1,1 @@
-Coaches play a crucial role in developing game plans, organizing set plays, and making tactical adjustments during matches to exploit opponents' weaknesses.
+Chess originated in ancient India around the 6th century AD, evolving from earlier Indian board games like chaturanga.
