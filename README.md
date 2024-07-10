@@ -1,1 +1,1 @@
-Chess originated in ancient India around the 6th century AD, evolving from earlier Indian board games like chaturanga.
+The haka is a traditional Maori war dance performed by the New Zealand All Blacks before their rugby matches, symbolizing strength, unity, and challenge to their opponents.
