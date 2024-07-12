@@ -1,1 +1,1 @@
-The haka is a traditional Maori war dance performed by the New Zealand All Blacks before their rugby matches, symbolizing strength, unity, and challenge to their opponents.
+Water polo originated in England in the late 19th century as a form of aquatic rugby, played in rivers and lakes.
