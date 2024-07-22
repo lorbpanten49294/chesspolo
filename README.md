@@ -1,1 +1,1 @@
-Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.
+The modern rules of chess were standardized in Europe during the 15th century, with the game gaining popularity among nobility and intellectuals.
