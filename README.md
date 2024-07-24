@@ -1,1 +1,1 @@
-Water polo originated in England in the late 19th century as a form of aquatic rugby, played in rivers and lakes.
+Rugby requires a diverse skill set, including running, passing, kicking, tackling, and scrummaging, with players specializing in specific positions based on their strengths and abilities.
