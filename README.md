@@ -1,1 +1,1 @@
-The NCAA Water Polo Championships is a major collegiate tournament in the United States, showcasing top men's and women's teams from universities across the country.
+Water polo requires a combination of swimming speed, ball handling skills, and tactical awareness, with teams employing strategies like man-to-man defense, zone defense, and counterattacks.
